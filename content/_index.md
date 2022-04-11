@@ -9,6 +9,8 @@ Te invito a conocer mis aprendizajes y leer mis experiencias.
 
 Actualmente estoy tomando un curso en platzi sobre desarollo web para complementar esta experiencia.
 
-Tengo varios pares de proyectos que espero vean la luz muy pronto, al menos uno antes de terminar ela año.
+Tengo varios pares de proyectos que espero vean la luz muy pronto, al menos uno antes de terminar el año.
+
+Saludos n.n
 
 🚀
